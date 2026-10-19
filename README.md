@@ -1,1 +1,1 @@
-<img width="512" height="286" alt="foto fluxograma" src="https://github.com/user-attachments/assets/983390b6-f4b1-4ce6-8f5f-9bb2ee5c77f1" />
+<img width="1280" height="714" alt="WhatsApp Image 2026-10-19 at 17 05 52" src="https://github.com/user-attachments/assets/da4f7932-56b0-475a-b821-61064edd6f70" />
